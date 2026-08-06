@@ -1,6 +1,6 @@
 # Bloom Rise — Privacy Policy
 
-_Last updated: 23 July 2026_
+_Last updated: 6 August 2026_
 
 Bloom Rise ("the app", "we") helps you track fertility, pregnancy, and your baby's first years. This policy explains what we collect and how it is used.
 
